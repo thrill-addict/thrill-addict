@@ -1,9 +1,9 @@
 rien / rin / chat lesbian did syshost intrj
 
-idk how to use ts thing bRE
+idk how to use ts thing bre..
 
 https://chaton-nemo.straw.page
-<- if u didn't see on profiLE
+<- if u didn't see on profiLe
 
 if im cosing rinne go to this strawpage instead https://thrill-addict.straw.page
 
