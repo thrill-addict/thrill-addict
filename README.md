@@ -1,4 +1,4 @@
-rinnie / wonnie lesbian did syshost intrj
+rinnie / wony lesbian did syshost intrj
 
 idk how to use ts thing bre..
 
