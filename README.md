@@ -2,5 +2,5 @@ rinnie / juri lesbian did syshost intrj
 
 idk how to use ts thing bre..
 
-https://chaton-nemo.straw.page
+https://rentry.co/col0rful
 <- if u didn't see on profiLe
