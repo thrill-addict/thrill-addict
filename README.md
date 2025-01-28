@@ -1,4 +1,4 @@
-rin / neo (pronounced ne-o, ne in next + oh)
+rin / leo :3
 
 nonbinary aroace did syshost intrj of leo tsukinaga + rinne amagi
 
