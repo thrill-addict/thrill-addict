@@ -1,8 +1,8 @@
-rin / leo :3
+tsavorae / amarin
 
-nonbinary aroace did syshost intrj of leo tsukinaga + rinne amagi
+nonbinary aroace lesbian did syshost intrj of "lantern" tsavorae + rinne amagi
 
-idk how to use ts thing bre..
+idk how to use ts bruh..
 
 https://rentry.co/rebel-heart
 <- if u didn't see on profiLe
