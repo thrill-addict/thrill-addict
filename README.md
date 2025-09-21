@@ -1,9 +1,6 @@
-tsavorae / amarin
+rin / amarin
 
-nonbinary aroace lesbian did syshost intrj of "lantern" tsavorae + rinne amagi
+genderfluid aroace lesbian did sys co-host intrj of rinne amagi + rainbow dash + panty anarchy
 
-lsi-1ti-n sx/so683 [R]co/E/N chol-mel
+sle-2se-c so/sx837 sCU[E]/N/ chol-sang
 idk how to use ts bruh..
-
-https://rentry.co/rebel-heart
-<- if u didn't see on profile
